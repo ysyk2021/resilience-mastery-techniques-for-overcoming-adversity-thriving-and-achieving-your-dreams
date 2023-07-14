@@ -1,8 +1,5 @@
 # Conclusion
 
-Chapter 11: Conclusion
-======================
-
 Summarizing Key Points Presented in the Book
 --------------------------------------------
 
