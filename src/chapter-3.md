@@ -1,5 +1,3 @@
-Chapter 3: Cultivating Positive Mindset
-=======================================
 
 Cultivating a positive mindset is essential for mastering resilience and overcoming adversity. In this chapter, we'll explore strategies for developing a positive mindset and self-talk to enhance resilience, as well as the benefits of cultivating a positive mindset for improved attitude, confidence, and motivation.
 

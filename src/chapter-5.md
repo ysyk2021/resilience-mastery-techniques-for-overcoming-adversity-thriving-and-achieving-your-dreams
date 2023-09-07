@@ -1,5 +1,3 @@
-Chapter 5: Strengthening Physical Health
-========================================
 
 Strengthening physical health is an essential component of resilience. In this chapter, we will explore strategies for building physical resilience through exercise, nutrition, and sleep, as well as the benefits of strengthening physical health for improved energy, focus, and resilience.
 

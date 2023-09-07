@@ -1,5 +1,3 @@
-The Benefits of Cultivating Positive Mindset for Improved Attitude, Confidence, and Motivation
-=======================================================================================================================================
 
 Cultivating a positive mindset is an essential component of developing resilience. A positive mindset can improve attitude, confidence, and motivation, leading to greater success in all areas of life. In this chapter, we will explore the benefits of cultivating a positive mindset.
 

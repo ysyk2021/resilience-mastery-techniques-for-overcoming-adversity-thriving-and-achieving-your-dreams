@@ -1,5 +1,3 @@
-Chapter 7: Navigating Life Transitions
-======================================
 
 Life transitions are a natural part of life. Whether it's a career change, loss of a loved one, or relocation to a new city, managing life transitions requires resilience and adaptability. In this chapter, we will explore strategies for managing and coping with life changes, as well as the benefits of navigating life transitions.
 

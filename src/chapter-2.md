@@ -1,5 +1,3 @@
-Chapter 2: The Psychology of Resilience
-=======================================
 
 The psychology of resilience is essential for mastering resilience and overcoming adversity. In this chapter, we'll explore the cognitive and emotional factors associated with resilience, as well as strategies for understanding and enhancing our psychological resilience.
 

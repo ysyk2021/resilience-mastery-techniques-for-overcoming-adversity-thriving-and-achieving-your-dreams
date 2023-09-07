@@ -1,4 +1,4 @@
-# Introduction
+
 
 Resilience is the ability to persevere and bounce back from adversity, challenges, and setbacks in life. It's a quality that we all possess to some degree, but it can be developed and strengthened through intentional practice and mindset shifts.
 
@@ -13,3 +13,7 @@ Throughout this book, we will share real-life examples of individuals who have d
 So, let's dive in and explore the techniques for developing resilience mastery!
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

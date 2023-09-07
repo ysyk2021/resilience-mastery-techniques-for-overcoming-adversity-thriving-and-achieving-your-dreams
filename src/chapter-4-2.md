@@ -1,5 +1,3 @@
-Strategies for Building and Maintaining Healthy Relationships to Enhance Resilience
-==============================================================================================================================
 
 Building resilient connections is an important part of developing resilience. Resilient connections can provide support, empathy, and effective communication, which are essential for overcoming adversity and achieving personal and professional goals. In this chapter, we will explore strategies for building and maintaining healthy relationships to enhance resilience.
 

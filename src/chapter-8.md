@@ -1,5 +1,3 @@
-Chapter 8: Managing Stress and Burnout
-======================================
 
 Stress and burnout can have a negative impact on resilience and well-being. In this chapter, we will explore strategies for identifying and managing the negative effects of stress and burnout on resilience.
 

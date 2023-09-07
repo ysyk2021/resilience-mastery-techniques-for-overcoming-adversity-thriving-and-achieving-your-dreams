@@ -1,5 +1,3 @@
-Chapter 4: Building Resilient Connections
-=========================================
 
 Building resilient connections is essential for mastering resilience and overcoming adversity. In this chapter, we'll explore strategies for building and maintaining healthy relationships to enhance resilience and the benefits of building resilient connections for improved support, empathy, and communication.
 

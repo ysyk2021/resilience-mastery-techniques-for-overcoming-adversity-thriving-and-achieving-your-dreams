@@ -1,5 +1,3 @@
-The Psychology of Resilience
-=======================================
 
 Resilience is not just a set of skills or techniques; it is also deeply rooted in psychology. In this chapter, we'll explore the psychology of resilience and how it can help us overcome adversity, thrive, and achieve our dreams.
 

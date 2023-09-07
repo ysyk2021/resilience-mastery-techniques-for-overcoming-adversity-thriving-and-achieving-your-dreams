@@ -1,5 +1,3 @@
-Chapter 6: Developing Emotional Intelligence
-============================================
 
 In this chapter, we will explore the importance of developing emotional intelligence for resilience mastery.
 
