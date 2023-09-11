@@ -1,5 +1,4 @@
-Chapter 10: Strategies for Building Physical Resilience through Exercise, Nutrition, and Sleep
-==============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Physical resilience is vital in overcoming adversity, thriving, and achieving your dreams. In this chapter, we will explore strategies for building physical resilience through exercise, nutrition, and sleep. By prioritizing your physical well-being and implementing these strategies, you can enhance your overall resilience and unlock your full potential.
 

@@ -1,5 +1,4 @@
-Chapter 7: Strengthening Physical Health
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Maintaining optimal physical health is a vital aspect of resilience mastery. In this chapter, we will explore various techniques for strengthening and nurturing our physical well-being. By prioritizing our physical health, we can overcome adversity, thrive, and work towards achieving our dreams with vitality and strength.
 

@@ -1,5 +1,4 @@
-Chapter 5: Developing Emotional Intelligence
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Emotional intelligence is a critical skill in mastering resilience. It involves understanding and managing your emotions effectively, as well as recognizing and empathizing with the emotions of others. In this chapter, we will explore techniques and strategies to help you develop emotional intelligence, enabling you to navigate adversity, thrive, and achieve your dreams.
 

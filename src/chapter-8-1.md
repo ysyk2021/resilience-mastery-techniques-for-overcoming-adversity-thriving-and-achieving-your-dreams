@@ -1,5 +1,4 @@
-Chapter 9: Managing Stress and Burnout
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for managing stress and preventing burnout. Resilience mastery involves not only overcoming adversity but also maintaining a healthy balance and well-being. By implementing these techniques, you can effectively manage stress and prevent burnout on your journey to achieving your dreams.
 

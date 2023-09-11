@@ -1,5 +1,4 @@
-Chapter 5: Strategies for Overcoming Common Barriers to Resilience Mastery
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for overcoming common barriers that hinder resilience mastery. Fear, perfectionism, and self-doubt can significantly impact your ability to bounce back from challenges and achieve your dreams. By implementing these strategies, you can break through these barriers and cultivate unwavering resilience.
 

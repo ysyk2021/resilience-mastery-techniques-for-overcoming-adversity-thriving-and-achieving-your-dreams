@@ -1,5 +1,4 @@
-Chapter 7: Overcoming Obstacles to Resilience
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the common obstacles that can hinder resilience and provide strategies for overcoming them. Understanding and addressing these challenges will empower you to cultivate and maintain resilience in the face of adversity.
 

@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Developing Self-Awareness, Self-Regulation, Empathy, and Social Skills to Enhance Resilience
-======================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Developing self-awareness, self-regulation, empathy, and social skills are fundamental strategies in enhancing resilience. These skills empower individuals to navigate challenges, manage emotions effectively, understand others' perspectives, and build strong support networks. In this chapter, we will explore various techniques that can help you cultivate these essential qualities and enhance your resilience in the face of adversity.
 

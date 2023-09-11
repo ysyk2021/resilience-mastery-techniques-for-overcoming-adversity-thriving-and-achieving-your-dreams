@@ -1,5 +1,4 @@
-Chapter 9: Sustaining Resilience Mastery
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this final chapter, we will explore strategies for sustaining resilience mastery over the long term. Building resilience is an ongoing journey that requires consistent effort and dedication. By implementing these techniques into your life, you can continue to navigate adversity, thrive, and achieve your dreams with unwavering resilience.
 

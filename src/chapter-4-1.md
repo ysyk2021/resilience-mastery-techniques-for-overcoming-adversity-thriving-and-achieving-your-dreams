@@ -1,5 +1,4 @@
-Chapter 8: Building Resilient Connections
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building resilient connections is a crucial aspect of mastering resilience. Strong and supportive relationships can provide the necessary foundation to overcome adversity, thrive, and achieve your dreams. In this chapter, we will explore various strategies and techniques to help you build resilient connections that will empower and uplift you during challenging times.
 

@@ -1,5 +1,4 @@
-Chapter 9: Navigating Life Transitions
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Life is full of transitions, both expected and unexpected. Navigating these transitions with resilience is key to overcoming adversity, thriving, and achieving your dreams. In this chapter, we will explore techniques and strategies for successfully navigating life transitions. By developing the necessary skills and mindset, you can embrace change, adapt to new circumstances, and continue on your resilience journey.
 

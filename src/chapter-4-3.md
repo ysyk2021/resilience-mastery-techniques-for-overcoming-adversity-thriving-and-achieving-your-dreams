@@ -1,5 +1,4 @@
-Chapter 8: The Benefits of Building Resilient Connections for Improved Support, Empathy, and Communication
-==========================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building resilient connections is a powerful strategy for overcoming adversity, thriving, and achieving your dreams. In this chapter, we will explore the numerous benefits that come from cultivating resilient connections, including improved support, empathy, and communication. By understanding these benefits, you can harness the power of resilient connections to enhance your resilience journey.
 

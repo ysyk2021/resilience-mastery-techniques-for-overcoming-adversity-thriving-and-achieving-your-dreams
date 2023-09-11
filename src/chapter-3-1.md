@@ -1,5 +1,4 @@
-Chapter 8: Cultivating a Positive Mindset
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of cultivating a positive mindset as a fundamental aspect of resilience mastery. A positive mindset empowers us to overcome adversity, thrive in challenging situations, and work towards achieving our dreams with unwavering determination and optimism.
 
